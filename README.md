@@ -10,3 +10,4 @@ Here are some ideas to get you started:
 - 🀄 Ask me about Chinese Queer Movies & Literature or Taizhou Mahjong
 - 📫 How to reach me: brycetuchi@gmail.com
 - 👨‍👨‍👦 Pronouns: He/Him
+- 小菜鸟一枚 多多包涵 多多指教
